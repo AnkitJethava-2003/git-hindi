@@ -1,0 +1,1 @@
+yes you can learn from this platform.
